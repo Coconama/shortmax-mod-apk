@@ -1,10 +1,10 @@
 # ShortMax MOD APK [Unlimited Coins] Premium Unlocked Free Dowload For Android Latest Version
 
-### Introduction: Discover ShortMax MOD APK
+###  Discover ShortMax MOD APK
 Enjoy an entire world of short films with ShortMax MOD APK! This app brings a collection of quick, engaging movies and shows across drama, suspense, romance, and thrillers—all designed for short, entertaining sessions. With ShortMax MOD APK, users get more content without the usual restrictions, offering premium unlocked features and high-quality playback for a streamlined viewing experience.
 
 
-👉Dowload Now 📸: [ShortMax MOD APK](https://modhello.com/shortmax/)
+### 👉Dowload Now 📸: [ShortMax MOD APK](https://modhello.com/shortmax/)
 ### Why Choose ShortMax MOD APK Over the Original?
 ShortMax MOD APK provides several enhancements over the original version. Here’s why users prefer this modded version:
 - **Unlimited Content**: Watch all short films without interruptions.
